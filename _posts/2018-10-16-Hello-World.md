@@ -25,8 +25,12 @@ We spotted some lovers (with now one ex-lovers)
 Cheng was getting drunk, everyone is getting VERY drunk
 ![Imgur](https://i.imgur.com/i7MUl9m.jpg)
 
-Becky shared prophetic remark with Dewi and Rachel on the way back home (according to Dewi)
+
+
+Becky shared prophetic remark on the way back home (according to Dewi)
 "He doesn't know it yet but We are meant to be together" 
+
+(!!!)
 
 Andy for some reason took of his shirt
 ![Imgur](https://i.imgur.com/YRhUh0C.jpg)
@@ -37,7 +41,9 @@ She doesn't still know
 Now Dewi is getting annoyed
 ![Imgur](https://i.imgur.com/LUwmEOC.jpg)
 
+We had good time!
 
+![Imgur](https://i.imgur.com/wqv7LxQ.jpg)
 
 
 
