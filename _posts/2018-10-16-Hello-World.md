@@ -6,6 +6,7 @@ IT was V's party
 
 ![Imgur](https://i.imgur.com/IA21Gh5.jpg)
 
+Based on frisbee beer cup, it must have been Varun's frisbee after party.
 Everybody was getting drunk
 
 ![Imgur](https://i.imgur.com/KkWWiBi.jpg)
