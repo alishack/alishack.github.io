@@ -28,6 +28,7 @@ Cheng was getting drunk, everyone was getting VERY drunk
 
 
 Becky shared a prophetic remark on the way back home (according to Dewi)
+
 **"He(Cheng) doesn't know it yet but we are meant to be together" **
 
 (!!!)
@@ -41,7 +42,7 @@ She doesn't still know
 Now Dewi is getting annoyed
 ![Imgur](https://i.imgur.com/LUwmEOC.jpg)
 
-We had good time
+We had a good time
 
 ![Imgur](https://i.imgur.com/wqv7LxQ.jpg)
 
