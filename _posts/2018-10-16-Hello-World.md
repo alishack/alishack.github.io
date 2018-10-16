@@ -6,7 +6,7 @@ IT was V's party
 
 Everybody was getting drunk
 
-[this image](https://photos.app.goo.gl/y6HMVDWMxVgeTn668)
+![this image](https://photos.app.goo.gl/y6HMVDWMxVgeTn668)
 
 ![_config.yml]({{ site.baseurl }}/images/config.png)
 
