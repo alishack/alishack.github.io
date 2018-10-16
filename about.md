@@ -4,12 +4,11 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+Hyunji's playground
 
-### More Information
-
-A place to include any other types of information that you'd like to include about yourself.
+### Tips
+Hmm don't eat too much sugar and move within 30min of waking up?
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[allisonleasure18@Geemail.com](mailto:allisonleasure18@geemail.com)
