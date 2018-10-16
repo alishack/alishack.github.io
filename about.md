@@ -3,7 +3,7 @@ layout: page
 title: About
 permalink: /about/
 ---
-
+![Imgur](https://i.imgur.com/WIj8TE7t.jpg)
 Hyunji's playground
 
 ### Tips
