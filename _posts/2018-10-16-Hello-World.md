@@ -28,7 +28,7 @@ Cheng was getting drunk, everyone was getting VERY drunk
 
 
 Becky shared a prophetic remark on the way back home (according to Dewi)
-"He doesn't know it yet but We are meant to be together" 
+**"He(Cheng) doesn't know it yet but we are meant to be together" **
 
 (!!!)
 
