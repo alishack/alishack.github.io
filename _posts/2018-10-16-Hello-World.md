@@ -22,7 +22,7 @@ We spotted some lovers (with now one ex-lovers)
 
 
 
-Cheng was getting drunk, everyone is getting VERY drunk
+Cheng was getting drunk, everyone was getting VERY drunk
 ![Imgur](https://i.imgur.com/i7MUl9m.jpg)
 
 
