@@ -27,7 +27,7 @@ Cheng was getting drunk, everyone was getting VERY drunk
 
 
 
-Becky shared a prophetic remark on the way back home (according to Dewi)
+Becky shared a prophetic insight on the way back home (according to Dewi)
 
 **"He(Cheng) doesn't know it yet but we are meant to be together"**
 
