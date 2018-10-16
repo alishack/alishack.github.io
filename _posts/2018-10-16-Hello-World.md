@@ -11,7 +11,7 @@ Everybody was getting drunk
 
 ![Imgur](https://i.imgur.com/KkWWiBi.jpg)
 
-We spotted some lovers (with now one ex-lovers)
+We spotted several lovers (with now one ex-lovers)
 
 ![Imgur](https://i.imgur.com/mm2yDfM.jpg)
 
