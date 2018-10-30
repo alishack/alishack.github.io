@@ -7,7 +7,7 @@ IT was V's party
 ![Imgur](https://i.imgur.com/IA21Gh5.jpg)
 
 Based on frisbee beer cup, it must have been Varun's frisbee after party.
-Everybody was getting drunk
+Lots of people were getting drunk
 
 ![Imgur](https://i.imgur.com/KkWWiBi.jpg)
 
@@ -33,7 +33,7 @@ Becky shared a prophetic insight on the way back home (according to Dewi)
 
 (!!!)
 
-Andy for some reason took of his shirt
+Andy for some reason took off his shirt
 ![Imgur](https://i.imgur.com/YRhUh0C.jpg)
 
 She doesn't still know
