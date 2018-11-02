@@ -1,3 +1,12 @@
+---
+layout: post
+title: Story of my pursuit of wellbeing
+---
+
+![Imgur](https://i.imgur.com/pd97U5d.jpg)
+
+Image has very little thing to do with the story, maybe with wellbeing and happiness :)
+
 Here's my story
 
 I had a few symptoms of unhealthy state of being. I felt bloated all the time. I was not overweight, but I always had a disproportionately big stomach compared to the rest of the body. It was affecting my posture, as I would scooch down my back with my stomach protruding. Deep down, I wanted to stand straight, with my stomach in, tailbone out, head straight, gaze forward. It's a life long habit of standing. I had a varying degree of a sudden craving that affected my mood. Here I'm writing about my mood, but it was a tough struggle to find a light in the darkness, trying to put into words how my body feels and bring mind into the discussion. I felt unstable all the time. My body was not stable so my mental was not stable. I was afraid of my craving for food. It wakes up the ancient survival instinct and (increase my cortisol level) my focus is on to food: how can I make sure I'm not hungry at all time? I wanted to get on with the projects that are waiting for me, but then I must be locked in the room with a mountainous amount of food so that the craving doesn't disrupt my focus. It was fearful and it was draining. It was scary and it was disruptive. Living was not easy even when you don't live in Yemen. When you are given so much, capable of doing many, there's a hook in your back that pull you backwards. Universe is not there with you 100%. You're maybe lacking 2%, or 20% but you're not complete. And you know that it can be done. That's the spirit that led me to search for answer. I had a faith that it can be complete. You can have a complete core of being.
