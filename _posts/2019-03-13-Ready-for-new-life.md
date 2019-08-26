@@ -14,6 +14,5 @@ What has been lacking is speaking up for our personal choices and life.
 Now that we want to raise other human being from the scratch, it's mandatory to set boundaries in personal level.
 As much as I want the kid to explore things freely and learn freely, there are things that we need to communicate firmly to the child. 
 
-First practice is to say 'no' to negative things. The child doesn't need to know 'situational lack of love' exist. Because it doesn't. he child should learn the love is everywhere because he/she is full of love. I want the kid to be the happiest person on earth not because he/she is the richest, the most powerful, or the most good looking, but because he/she is full of love and passion.
+First practice is to say 'no' to negative things. The child doesn't need to acknowledge the state of'lack of love'. Because it's not real as the world make it to be. The child should learn the love is everywhere because he/she is full of love. I want the kid to be the happiest person on earth not because he/she is the richest, the most powerful, or the most good looking, but because he/she is full of love and passion.
 
-For this, I will fight whoever instill their 'lack of love' to our lives and they don't belong to our lives.
